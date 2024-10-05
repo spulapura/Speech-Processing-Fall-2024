@@ -1,2 +1,0 @@
-Thursday Sept. 19
-
